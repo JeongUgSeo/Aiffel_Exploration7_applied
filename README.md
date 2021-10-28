@@ -1,0 +1,1 @@
+# Aiffel_Exploration7_applied
